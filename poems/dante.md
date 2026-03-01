@@ -1,0 +1,5 @@
+
+Nel mezzo del cammin di nostra vita
+mi trovai per una selva oscura
+che la retta via era smarrita.
+
